@@ -5,7 +5,7 @@
 #### [➤ ►🌍📺📱👉 Captain America [Brave New World] (2025) F𝚞ll Mo𝚟ie](https://cutt.ly/te7fd9Ay)
 #### [➤ ►🌍📺📱👉 Captain America [Brave New World] (2025) F𝚞ll Mo𝚟ie](https://cutt.ly/te7fd9Ay)
 #### [➤ ►🌍📺📱👉 W𝚊tch Captain America [Brave New World] (2025) F𝚞ll Mo𝚟ie Downl𝚘ad](https://cutt.ly/te7fd9Ay)
-[![watch_full_movie](https://image.tmdb.org/t/p/w500/ywe9S1cOyIhR5yWzK7511NuQ2YX.jpg)
+[![watch_full_movie](https://image.tmdb.org/t/p/w500/qfAfE5auxsuxhxPpnETRAyTP5ff.jpg)
 
 Wondering how to W𝚊tch Captain America [Brave New World] 𝙾nl𝚒ne? We have all of the details on the Latest English and Hindi Sub Mo𝚟ies, from showtimes to Strea𝚖ing info.
 
